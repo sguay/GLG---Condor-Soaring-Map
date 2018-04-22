@@ -1,0 +1,1 @@
+# GLG---Condor-Soaring-Map
